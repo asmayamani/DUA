@@ -1,3 +1,3 @@
 # DUA
 
-To be added by Jan4th
+To be added on the 4th of Jan.
